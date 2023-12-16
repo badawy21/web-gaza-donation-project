@@ -1,0 +1,1 @@
+# web-gaza-donation-project
